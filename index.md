@@ -31,4 +31,19 @@ a qué fueras mi Pulguita, mi chaparrita, mi arcoiris, mi amor!!!
 
 Luego vino cuando me fui de poli y siempre me apoyaste, haz creído en mi, me haz dado muchas fuerzas y me haces
 un hombre mejor, quizá me he equivocado y te he tratado mal en varias ocasiones, discúlpame por eso mi amor.
-Hemos pasado tanto en tan poco tiempo pero eso no hace nuestra relación mala ni mucho menos.
+Hemos pasado tanto en tan poco tiempo pero eso no hace nuestra relación mala ni mucho menos. Hemos pasado eso, tambien
+cuando tenías nublado tu futuro en poli y Miraflores, en esta fecha perdía el control y te alzaba la vos
+discúlpame por comportarme de esa manera. Además de eso pasamos mucho tiempo juntos y eso mi amor me encanta, estar contigo,
+hablar contigo, ver series, dormir, ir de compras, abrazarte, besarte, en general me fascina tanto
+ ser tu novio. 
+
+Haz llegado a mi vida a llenarme de muchos sentimientos hermosos, te haz ganado mi corazón, mi cariño, mi amor.
+Te haz convertido en parte importante de mi vida y escencial de mi ser. Me has apoyado desde hace mucho, y mientras mis dudas cuando no tenía
+plata, cuando mi mamá fue operada, cuando ella se fue, y recientemente que deje mi zona de confort y me dispuse a encarar la vida
+para trabajar lejos de mi casa. En todo este tiempo haz estado conmigo y enserio créeme que quiero que así siga siendo por mucho muchísimo tiempo.
+Te quiero demasiado mi amor y con respecto a lo que te dije el miércoles 20 de octubre(le pongo fecha para que recuerdes el día exacto) lo que
+siento por ti es enorme y aunque tenía miedo a decirlo no lo negare, es algo que te haz ganado a pulso y se que te asusta pero espero siga creciendo.
+Te quiero mi chaparrita y más que eso Te amo y espero me disculpes por decirlo una vez tan seguido pero tenía que terminar de esa manera está pequeña nota.
+
+Recuerda visitar este enlace siempre que te sientas sola o que todo ya no tiene sentido, recuerda lo que siento por ti y lo importante que eres para mi vida
+te lo dice tu novio, tu rayito, tu Delicate y te lo dice de corazoncito 🤍⚡🌈♥️
